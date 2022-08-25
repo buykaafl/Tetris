@@ -1,2 +1,1 @@
-please Support me
-Creator & Author: Buynaa
+Author & Creator: Buynaa
